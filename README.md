@@ -4,6 +4,6 @@
 
 Studying Biomedical Engineering and Artificial Intelligence 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ Sophomore Year at Gachon Univesity of Korea
+‎ ‎ ‎ ‎ ‎ ‎ ‎ Senior Year at Gachon Univesity of Korea
 
 ───────────────────────────
